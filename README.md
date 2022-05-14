@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ToasterGen
+- 👀 I’m interested in copying vore games and sending them to people who really want to play the games that have been deleted/banned by roblox,
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate with other people, but I am too shy to talk or too nervous to communicate with anyone,
+- 📫 You can reach me on discord by sending a DM to my discord 🍞 𝐓𝐨𝐚𝐬𝐭𝐞𝐫 🍞#8715 
